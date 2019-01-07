@@ -16,6 +16,6 @@ He said “Would you like to come back to my place and check out my sturdy rotar
 
 She said **“what she said”**
 
-As a consequence, he ended up selling the sturdy rotary phone on eBay for a price of £4,999, 99 and sent that money to a charity for donkeys.
+As a consequence, he ended up selling the sturdy rotary phone on eBay for a price of £4,999.99 and sent that money to a charity for donkeys.
 
 And the world said **“what the world said”**
